@@ -4,7 +4,7 @@
 **Discover the emotional and haunting final chapter of Sprunki.**  
 "Sprunki Cancelled Update" is the last official release of the iconic Sprunki series, developed by Nano BF LOL. This update serves as a bittersweet conclusion to the beloved mod, showcasing new features, characters, and lore while marking the end of an era. Dive into this final update and experience the creative brilliance that captivated fans worldwide.
 
-## Play [Sprunki Cancelled Update](https://cocrea.world/@NyankoBfLmao/INCREDIBOXSprunkiOfficialFinalUpdate)
+## Play [Sprunki Cancelled Update](https://sprunkiincredibox.app/sprunki-cancelled-update)
 
 ![](https://sprunkiincredibox.app/images/sprunki-cancelled-update.webp)
 
